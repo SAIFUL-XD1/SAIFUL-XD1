@@ -47,7 +47,7 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
- 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 [𝙽𝙰𝚁𝚄𝚃𝙾-𝚇𝙳](https://www.facebook.com/profile.php?id=61552601707200)
+ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 [SAIFUL KHAN](https://www.facebook.com/profile.php?id=61552601707200)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
